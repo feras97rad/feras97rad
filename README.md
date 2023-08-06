@@ -41,7 +41,7 @@ PhD student in Computer Science and Computer Engineering at Voronezh State Unive
 * Russian - native
 * Arabic - native
 
-**Contacts**
+**Contacts:**
 
 **Email:** feras97rad@gmail.com
 
